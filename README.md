@@ -1,3 +1,3 @@
 # work
 <br>
-Author - Khushi thapa
+Author - Khushi thapa (eb design)
